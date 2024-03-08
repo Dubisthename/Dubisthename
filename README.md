@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Dubisthename
+- 👋 Hi, I’m Owen Imudia (Also called @Dubisthename)
 - 👀 I’m interested in Football (which is called soccer in America), learning about web development and listening to music
 - 🌱 I’m currently learning HTML/CSS
 - 📫 How to reach me by email [imudiaowen@gmail.com] or Phone number[4379964180]
